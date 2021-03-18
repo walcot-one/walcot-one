@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Nikoli Ellison!
+- 📚 I study English & Linguistics at Coastal Carolina University.
+- 🤔 Have you considered the word ‘fallacious’ sounds kinda funny?
